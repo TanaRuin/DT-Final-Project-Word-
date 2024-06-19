@@ -7,4 +7,4 @@ Created by:
 Vammy Johannis Jiang - 2702368122
 
 
-Samuel James Setaidi - 2702357876
+Samuel James Setiadi - 2702357876
